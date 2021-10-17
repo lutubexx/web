@@ -1,7 +1,7 @@
-# 最新地址发布
+# Lutube最新回家址
 
 #### 介绍
-lutube最新地址发布
+lutube永久回家地址
 
 #### 最新地址
 https://v.iqubu.com
